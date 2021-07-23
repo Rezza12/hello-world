@@ -1,2 +1,6 @@
 # hello-world
-My first time I use Github after a while
+
+Hi there !
+
+Rezza here, I like to lay down and breathing
+I am still learning about to be present at the moment and live on my goals 
